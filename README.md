@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sanjeeth653@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1lFWLbExbOn0p_q9K8AAFVM9d9PDeayLD/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/18K849bJyJ9HUHViI9DeHbf3F-lAP-sCr/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
